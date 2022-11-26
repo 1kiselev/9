@@ -1,1 +1,0 @@
-# Kiselev-Allakhverdyan-project
